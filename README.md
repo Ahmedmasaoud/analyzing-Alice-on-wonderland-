@@ -5,7 +5,7 @@ But why do we analyze emotions in novels? Here are some reasons why we conduct t
 
 1. Analyzing Emotional Arcs
   
-3. Comparing Literary Styles and Authors
+2. Comparing Literary Styles and Authors
 
 3.Understanding Reader Emotion
 
